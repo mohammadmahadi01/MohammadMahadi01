@@ -1,6 +1,6 @@
-### Mahadi Mohammad 
+# Mahadi Mohammad 
 
-# Mahadi-Decode-Script Fire File
+### Mahadi-Decode-Script Fire File
 
 I fuck your GF🥵
 
